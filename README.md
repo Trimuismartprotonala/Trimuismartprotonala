@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... videojuegos 
 - 🌱 I’m currently learning ... Poesia y filosofía 
 - 💞️ I’m looking to collaborate on ...politica 
-- 📫 How to reach me ...
+- 📫 How to reach me ... dbsuper24@gmail.com
 - 😄 Pronouns: ...Yeshua 
 - ⚡ Fun fact: ... videojuegos 
 
